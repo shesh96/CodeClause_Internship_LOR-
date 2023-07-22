@@ -1,1 +1,1 @@
-# CodeClause_Internship_LOR-
+Internship and courses Certifications
